@@ -1,0 +1,1 @@
+# Garmin-Tactix-7-pro
